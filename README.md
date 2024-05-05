@@ -1,6 +1,6 @@
 
 21bds028-Kiriti Kumar Kola (KOLAKIRITI)
-21bds032-Satyam Kunche
+21bds032-Satyam Kunche (SatyamKunche)
 21bds035-M Ruthvik (Ruthvik-7)
 21bds042-N Dilli Babu (Dillideekshi)
 
